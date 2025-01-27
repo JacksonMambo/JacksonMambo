@@ -1,4 +1,4 @@
-# Hi, I'm Jackson Mambozoukuni 👋
+# Hi, I'm Jackson Mambo 👋
 💻 **Data Analyst | Automation Expert | Agricultural & Business Management**  
 🚀 **Transforming businesses through data and technology**  
 
