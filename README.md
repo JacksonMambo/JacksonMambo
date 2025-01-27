@@ -1,5 +1,5 @@
 # Hi, I'm Jackson Mambo 👋
-💻 **Data Analyst | Automation Expert | Agricultural & Business Management**  
+💻 **Data Analyst | Automation Expert | Agricultural & Business Management| Payroll Process Automations**  
 🚀 **Transforming businesses through data and technology**  
 
 ## 🛠 Skills
